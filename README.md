@@ -11,6 +11,5 @@
 📫 Cómo contactarme:
 📧 Correo: wenzelcruzado14@gmail.com
 📞 Teléfono: +51 947 752 835
-🔗 LinkedIn: linkedin.com/in/wenzel-whilan-cruzado-villegas-b81ba8243
 
 ✨ ¡Gracias por tu tiempo y atención!
